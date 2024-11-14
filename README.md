@@ -1,6 +1,5 @@
 # South Asian Country with the most dramatic Economic & Social change (2000 to 2023)
-Eman
-Eman
+
 ![image](https://github.com/user-attachments/assets/c9476806-4eb1-4911-9bd6-2930e1dbff82)
 
 [Check out my blog!](https://emanisar.medium.com/south-asian-country-with-the-most-dramatic-economic-social-change-2000-to-2023-08a9e937c94d)
